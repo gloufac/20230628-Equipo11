@@ -1,2 +1,2 @@
 Equipo 11
-- GLoria Lopez - Frank Villa
+- GLoria Lopez - Frank Villa - Juan Avendaño
