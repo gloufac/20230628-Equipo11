@@ -1,2 +1,7 @@
-Equipo 11
-- GLoria Lopez - Frank Villa - Juan Avendaño - Horlando Espinoza - Andres Gil
+
+* **strong** Andres Felipe Gil Camelo **strong** *
+** Colombia **
+Colombia *smiley*
+
+
+
